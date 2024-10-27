@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and innovation
 - 🌱 I’m currently learning many new tech things
 - 💞️ I’m looking to collaborate on various innovative project ideas
-- 📫 You can reach me by mailing me on aryansharma220@rediff.com
+- 📫 You can reach me by mailing me on aryan.b.sharma220@gmail.com
 - My Linkedin profile is https://www.linkedin.com/in/aryan-sharma-77a98a216/
 
 <!---
